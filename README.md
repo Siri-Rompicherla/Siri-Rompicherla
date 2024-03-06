@@ -1,3 +1,3 @@
 -  Hi, I’m @Siri-Rompicherla
--  findind creative digital solutions to Innovative ideas
+-  Finding Creative Digital solutions to Innovative ideas
   
