@@ -1,2 +1,3 @@
-- 👋 Hi, I’m @Siri-Rompicherla
+-  Hi, I’m @Siri-Rompicherla
+-  findind creative digital solutions to Innovative ideas
   
